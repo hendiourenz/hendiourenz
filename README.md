@@ -1,6 +1,6 @@
 # Hi, I'm Endurance Omale 👋
 
-**Retail banking leader moving toward product and growth.** I run retail banking operations for a region in Abuja, Nigeria, and I'm building hands-on data and product skills to pair with my commercial experience.
+**Retail banking leader moving toward product development and growth.** I run retail banking operations for a region in Abuja, Nigeria, and I'm building hands-on data and product skills to pair with my commercial experience.
 
 MBA (ABU Zaria) · ACIB · Experience across Wema Bank, Fidelity Bank, UBA and Diamond Bank
 
